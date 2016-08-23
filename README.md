@@ -1,4 +1,4 @@
-# Equidad-de-g-nero-PdR-
+# Equidad de género PdR
 Resumen: Relevamiento de la composición en términos de género de las Comisiones y Juntas de la Legislatura. 
 
 **Un mapa de la inequidad**
